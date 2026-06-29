@@ -1,4 +1,4 @@
-# 
+# New 30+ AI Projects at UQAC tools. Featuring generative-AI and cloud-AI — optimized for maximum performance.
 
 
 
